@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Talles Maia 😁
+## Bem-vindo(a) ao perfil de Talles Maia 🦇
 
  <div>
    <a href="https://github.com/tallesmaia13">
